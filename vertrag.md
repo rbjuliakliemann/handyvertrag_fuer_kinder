@@ -1,4 +1,4 @@
-# Handyvertrag für Kinder**
+# Handyvertrag für Kinder
 
 ## Die 4 Hauptregeln
 
@@ -30,12 +30,12 @@
 - Gib uns Bescheid, solltest du merkwürdige Nachrichten oder Anrufe von Menschen erhalten, die du nicht kennst.
 - Nimm an keinen Online-Gewinnspielen teil. Die allermeisten davon wollen immer nur deine Adresse oder Telefonnummer sammeln.
 - Verschicke und poste keine unangebrachten Fotos von dir oder anderen. Solltest du unangemessene Fotos sehen, lösche diese oder schließe das Browserfenster und lösche eventuell die App.
-- Überlege dir gut wem du deine Telefonnummer gibst.
+- Überlege dir gut, wem du deine Telefonnummer gibst.
 
 ## Das Internet und Apps
 
 - Das Internet ist aufregend. Nutze das Netz für Dinge, die du auch mit uns teilen würdest. Versuch, dich in der digitalen Welt sicher und verantwortungsvoll zu bewegen.
-- Die sozialen Medien können gleichzeitig toll und grauenvoll sein. Was du online postest, bleibt auch online. Wir möchten nicht, dass du ein Profil in einem sozialen Netzwerk pflegst. Sollten Freunde von dir solche Profile haben, dürfen sie keine Fotos oder Videos von dir auf ihren Kanälen posten. Auf der anderen Seite dürfen auch wir Eltern ohne deine Einwilligung keine Fotos oder Videos  posten.
+- Die sozialen Medien können gleichzeitig toll und grauenvoll sein. Was du online postest, bleibt auch online. Wir möchten nicht, dass du ein Profil in einem sozialen Netzwerk pflegst. Sollten Freunde von dir solche Profile haben, dürfen sie keine Fotos oder Videos von dir auf ihren Kanälen posten. Auf der anderen Seite dürfen auch wir Eltern ohne deine Einwilligung keine Fotos oder Videos veröffentlichen.
 
 ## 2 Gelbe Karten, dann gibt's Rot
 
