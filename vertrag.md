@@ -37,6 +37,6 @@
 - Das Internet ist aufregend. Nutze das Netz für Dinge, die du auch mit uns teilen würdest. Versuch, dich in der digitalen Welt sicher und verantwortungsvoll zu bewegen.
 - Die sozialen Medien können gleichzeitig toll und grauenvoll sein. Was du online postest, bleibt auch online. Wir möchten nicht, dass du ein Profil in einem sozialen Netzwerk pflegst. Sollten Freunde von dir solche Profile haben, dürfen sie keine Fotos oder Videos von dir auf ihren Kanälen posten. Auf der anderen Seite dürfen auch wir Eltern ohne deine Einwilligung keine Fotos oder Videos veröffentlichen.
 
-## 2 Gelbe Karten, dann gibt's Rot
+## 2 gelbe Karten, dann gibt's Rot
 
 - Jeder Verstoß dieser Vereinbarung führt zu einer gelben Karte. Nach zwei gelben Karten folgt die rote Karte. Danach wird das Handy einbehalten und der Vertrag endet automatisch.
