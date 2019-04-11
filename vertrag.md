@@ -39,4 +39,4 @@
 
 ## 2 Gelbe Karten, dann gibt's Rot
 
-- Jeder Verstoß dieser Vereinbarung führt zu einer gelben Karte. Nach 3 gelben Karten folgt eine rote Karte. Danach wird das Handy einbehalten und der Vertrag endet automatisch.
+- Jeder Verstoß dieser Vereinbarung führt zu einer gelben Karte. Nach zwei gelben Karten folgt die rote Karte. Danach wird das Handy einbehalten und der Vertrag endet automatisch.
