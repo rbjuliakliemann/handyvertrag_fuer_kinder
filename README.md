@@ -1,4 +1,4 @@
-# handyvertrag_fuer_kinder
+# Handyvertrag für Kinder
 
 ## Historie
 Der Vertrag ist die deutsche Übersetzung eines Handy-Vertrags für Eltern und Kinder von [Mark und Emma Boulton](https://github.com/markboulton/child-phone-contract).
